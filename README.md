@@ -1,4 +1,6 @@
-## Hi there 👋
+## Eu quando falto da escola:
+
+![](https://media.tenor.com/FBhRIAigFAYAAAAi/cat-twerk-this-cat-is-twerking.gif)
 
 <!--
 **jose131208/jose131208** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
